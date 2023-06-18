@@ -1,0 +1,4 @@
+- Hey, I'm RINADev.
+- I'm a Roblox Game Developer.
+- I've been using LuaU for 7 whole years!
+- You can reach me through Twitter at https://twitter.com/RINADevv or though Discord
